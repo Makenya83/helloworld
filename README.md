@@ -12,3 +12,4 @@ poer of love dude
 in the situation 
 you encounter power
 love the way yur are
+good news and power
